@@ -1,4 +1,5 @@
 ## Hi there 👋
+I'm the CEO of fresh fruit and BROWERHISTORYCLEANING! and I respect any ships! but not proshippers!.... Im kinda sensitive but let's forget about that I like foods hehe![873dbb84b187144a922eb73efa0d4d2d](https://github.com/user-attachments/assets/5aa51ad2-6073-4712-9642-a05439087268)
 
 <!--
 **sweetiepiesz/SWEETIEPIESZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
