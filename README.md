@@ -1,4 +1,5 @@
-## 𓐮 . ୨୧ . ܀ helloo!! kaboooddllleee fannnnnnnn and hi calll me skyaa /yana /yio :3 (https://github.com/user-attachments/assets/5aa51ad2-6073-4712-9642-a05439087268)
+## 𓐮 . ୨୧ . ܀ helloo!! kaboooddllleee fannnnnnnn and hi calll me skyaa /yana /yio :3 ![Uploading 112ad778d7e741bbc19a819556cca561.jpg…]()
+
 
 <!--
 **sweetiepiesz/SWEETIEPIESZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
