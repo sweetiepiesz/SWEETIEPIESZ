@@ -1,4 +1,4 @@
-## 𓐮 . ୨୧ . ܀ helloo!! kaboooddllleee fannnnnnnn and hi calll me skyaa /yana /yio :3 ![Uploading 112ad778d7e741bbc19a819556cca561.jpg…]()
+## 𓐮 . ୨୧ . ܀ helloo!! kaboooddllleee fannnnnnnn and hi calll me skyaa /yana /yio :3 ![112ad778d7e741bbc19a819556cca561.jpg…]()
 
 
 <!--
